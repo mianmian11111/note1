@@ -6,6 +6,8 @@
 
 ## 豆腐干恢复共和国和v回家
 
-![image-20231117203154797](https://raw.githubusercontent.com/mianmian11111/NLP__01/main/nte.mdimage-20231117203154797.png)
+
+
+![image-20231117203631318](https://raw.githubusercontent.com/mianmian11111/NLP__01/main/nte.mdimage-20231117203631318.png)
 
 
